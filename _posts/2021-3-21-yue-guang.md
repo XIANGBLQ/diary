@@ -1,0 +1,83 @@
+---
+layout: post
+title: "送给你（三）"
+date: 2021-2-4
+category: read 
+excerpt: "hiam"
+cover_url: https://imglf3.lf127.net/img/N1ZVNXBuaTNneUU1b1lpMzVYeTErZFZraGpzenVrVGZWQmpLZTlTMDVTQlM0M1cxTzg1VzRRPT0.png?imageView&thumbnail=1680x0&quality=96&stripmeta=0
+---
+
+<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width=370 height=52 src="//music.163.com/outchain/player?type=2&id=191179&auto=1&height=32"></iframe>
+
+你看今夜
+
+美丽的月亮
+
+就挂在那里
+
+人来人往的桥上
+
+---
+
+他们就坐在桥边
+
+拍着鼓，弹着吉他
+
+驻足的人们
+
+应和着欢笑歌唱
+
+---
+
+俯在桥栏
+
+你看着河流
+
+在轻微地荡漾
+
+---
+
+河流爱慕着桥上霓虹
+
+霓虹爱慕着你的手指
+
+随着敲打应和起舞
+
+---
+
+我想，你在等待中
+
+同我来时一样
+
+在期待着着欢畅
+
+---
+
+被亲爱的你发现
+
+跃起向我招手
+
+微风吹动了你的头发
+
+月光撩拨了你的衣裳
+
+---
+
+像夜色装饰了桥面
+
+像歌声拨动着脚步
+
+我向你走去
+
+---
+
+被月光锁住了的你
+
+终究锁住我的心房
+
+
+
+
+
+<font color=" #A8A8A8">
+XUNYI | SANSUI </font>
