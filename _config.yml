@@ -17,7 +17,7 @@ link:
 # Links in the navigation, you can modify both link name and link url
 nav:
    Home: "https://xiangblq.github.io/diary"
-   Diary: "/diary"
+   Diary: "/_posts"
 
    
 markdown: kramdown
